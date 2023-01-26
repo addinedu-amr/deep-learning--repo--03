@@ -1,1 +1,3 @@
-# deep-learning--repo--03
+https://github.com/sangminha/finishard
+
+https://github.com/sangminha/My
